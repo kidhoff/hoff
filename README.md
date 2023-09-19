@@ -3,3 +3,5 @@
 ### Você pode entrar em contato como amigo
 ###godto de maças
 ###gosto de estudar, e sou imteliguente
+###gosto de dormir
+###eu estudo muito, com amigos
