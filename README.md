@@ -5,3 +5,5 @@
 ###gosto de estudar, e sou imteliguente
 ###gosto de dormir
 ###eu estudo muito, com amigos
+###sou divertido
+###gosto de picanha e churasco, com sambiquera.
